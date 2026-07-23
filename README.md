@@ -9,6 +9,7 @@
 <br>
 <br>$\textsf{\color{red}{1.李洪志1秒内就可以:杀死全部法轮功学员啦。用你来迫害法轮功？}}$
 <br>$\textsf{\color{red}{2.李洪志1秒内就可以:复活死掉的全部法轮功学员啦。用你来平反法轮功？}}$
+<br>$\textsf{\color{red}{3.李洪志1秒内就可以:消灭共产邪党啦。用你来消灭共产邪党啊？}}$
 </h3>
 <hr>
 <img src="https://github.com/user-attachments/assets/3bbb736a-b8e1-4f8c-a079-1b446b70ebc4" alt="MLH_100_R000_M_1X2_00">
